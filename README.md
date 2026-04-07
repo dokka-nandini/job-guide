@@ -1,5 +1,7 @@
 # chess 
-all ok 578
-tc
-gn s
-anything there
+everything fine 
+but 8
+
+7 
+
+8888888888888
