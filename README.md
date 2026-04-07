@@ -1,7 +1,5 @@
 # chess 
-everything fine 
-but 8
+same 8 tc gm
+7 Tinnu tc 8
 
-7 
-
-8888888888888
+all ok niku ok kada 
