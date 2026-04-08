@@ -1,13 +1,3 @@
-apeksha akka ki send chesa mail
+ok tc bye take rest thinnu
+78
 
-and other vi chusthunna 
-
-
-institute lpvi chudu 
-
-
-inka emina untey i will tell you come
-
-
-
-always open and search in github only
