@@ -8,3 +8,31 @@ all ok 78
 telephone interview anta wating for call
 
 any tips
+
+
+
+
+
+
+keeep extra phone open chatgpt 
+
+
+
+remember java sql and other rhings 
+
+
+
+project also 
+
+
+
+self intro also
+
+
+
+if asks anything 
+
+
+doo Google or chatgpt 
+
+
