@@ -88,11 +88,11 @@ https://chatgpt.com/share/69c25603-bec0-8008-b2da-e8fd46eabb42
 
 
 
+==========================================================================>
 
 
 
-
-#self intro
+# self intro
 
 Greetings of the day sir,
 
