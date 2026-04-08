@@ -20,4 +20,4 @@ indend on this interview
 mummy nv undu inka naku health bagaledu kada attudi
 nenu niku rly ni send chaythu lekunte chayk
 
-nv Friday intiki po ok na 8
+nv Friday intiki po ok na 8 rly
