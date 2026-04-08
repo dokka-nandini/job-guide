@@ -1,3 +1,9 @@
-ok tc bye take rest thinnu
-78
+same tc 
+baga chadvuko 
+pray god
+eat good 
+take sleep 
+
+and bee calm 
+and imagine good and job will come
 
