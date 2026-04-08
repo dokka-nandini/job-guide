@@ -1,4 +1,6 @@
-same 8 7 
+more 8 
 
-health baguda ok na
-8 badha undi ra 8
+water water 
+
+don't know what to do 
+what was going
