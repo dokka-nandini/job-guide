@@ -1,1 +1,1 @@
-ok tc 8 8 water , 
+don't worry pls bye gn tc 785 all ss
