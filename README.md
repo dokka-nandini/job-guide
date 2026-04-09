@@ -1,7 +1,7 @@
 https://www.linkedin.com/posts/radhika-a-53bb94a4_hiring-softwareengineer-remotejob-share-7447727360927272960-_oOa?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAF_NGTMBFp9HBlWLr2KTFHtOsHK1jhNlegI&utm_campaign=copy_link  
 
 
-neee nandini program mail account lo resume code undhi send your over leaf account password 
+neee nandini program login kada mail account lo resume code undhi send your over leaf account password  or wait sometime now dad they wait i will accept mail ok
 
 https://chatgpt.com/share/69b8fa7d-13c4-8008-b329-4f98ee82c6e0
 
