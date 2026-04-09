@@ -219,5 +219,5 @@ integrated face detection and time stamp attendance monitoring system
 in resume and ask chatgpt
 
 
-ec more 8 water c p pray 7
+family all are there nv tc 578 don't c p and pray thinnava=10 nenu thinna p d c all s 8
 aroma hotel and portifolio see code in github
