@@ -1,8 +1,7 @@
 https://www.linkedin.com/posts/radhika-a-53bb94a4_hiring-softwareengineer-remotejob-share-7447727360927272960-_oOa?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAF_NGTMBFp9HBlWLr2KTFHtOsHK1jhNlegI&utm_campaign=copy_link  
 
 
-
-edit resume data science for this role later send me herecollege id card upload for infosys
+neee nandini program mail account lo resume code undhi send your over leaf account password 
 
 https://chatgpt.com/share/69b8fa7d-13c4-8008-b329-4f98ee82c6e0
 
@@ -222,5 +221,4 @@ cyber bullying detection in resume
 integrated face detection and time stamp attendance monitoring system 
 in resume and ask chatgpt
 
-may Saturday or tmr coming ok 78 because tcs walkin ok na
 aroma hotel and portifolio see code in github
