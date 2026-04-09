@@ -219,5 +219,5 @@ integrated face detection and time stamp attendance monitoring system
 in resume and ask chatgpt
 
 
-more 8 c
+same 8 7 tc
 aroma hotel and portifolio see code in github
