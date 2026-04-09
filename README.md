@@ -1,4 +1,4 @@
-college id card upload for infosys
+hello college id card upload for infosys
 
 https://chatgpt.com/share/69b8fa7d-13c4-8008-b329-4f98ee82c6e0
 
@@ -222,4 +222,4 @@ in resume and ask chatgpt
 
 aroma hotel and portifolio see code in github
 
-
+ok 785 gm tc s
