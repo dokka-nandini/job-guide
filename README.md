@@ -225,6 +225,6 @@ cyber bullying detection in resume
 
 integrated face detection and time stamp attendance monitoring system 
 in resume and ask chatgpt
-
+vachina 785 bye gn
 
 aroma hotel and portifolio see code in github
