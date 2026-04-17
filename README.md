@@ -223,7 +223,7 @@ Thanks for giving this oppurtunity
 
 cyber bullying detection in resume
 
-integrated face detection tc  and time stamp read attendance monitoring be system 
-in resume happy and ask chatgpt pray
+integrated face detection ok tc  and time stamp read attendance monitoring be system 
+in resume tc happy nv 578 and ask chatgpt ok pray nv
 
 aroma hotel and portifolio see code in github
